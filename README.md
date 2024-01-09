@@ -5,5 +5,7 @@ Latest google docs link
 [https://docs.google.com/document/d/1qesuVHcmaMRzxYcC0HwWObYoImjjG9TVtnVqN-yPLYY/edit?usp=sharing](https://docs.google.com/document/d/1qesuVHcmaMRzxYcC0HwWObYoImjjG9TVtnVqN-yPLYY/edit?usp=sharing)
 
 Like this content?
+
 Feel free to show me your appreciation here:
+
 [BuyMeACoffee](https://www.buymeacoffee.com/ryfleisch)
