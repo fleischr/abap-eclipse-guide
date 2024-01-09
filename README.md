@@ -6,4 +6,4 @@ Latest google docs link
 
 Like this content?
 Feel free to show me your appreciation here:
-[https://www.buymeacoffee.com/ryfleisch](https://www.buymeacoffee.com/ryfleisch)https://www.buymeacoffee.com/ryfleisch
+[BuyMeACoffee](https://www.buymeacoffee.com/ryfleisch)
